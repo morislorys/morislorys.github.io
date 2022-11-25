@@ -1,2 +1,2 @@
 # morislorys.github.io
-i like this kin of stuff
+i like this kind of stuff.
